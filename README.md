@@ -1,1 +1,1 @@
-# parkridgeresort.github.io
+# Parkridgeresort.github.io
